@@ -5,7 +5,11 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=mohammedelgendy11" alt="mohammedelgendy11" /></a> </p>
 
+- 💬 Ask me about **AR and VR**
+
 - 📫 How to reach me **muhammedelgendy511@gmail.com**
+
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1K-BD8AqDBfhJmxyDG1pG5F316W-Razet?usp=sharing](https://drive.google.com/drive/folders/1K-BD8AqDBfhJmxyDG1pG5F316W-Razet?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
